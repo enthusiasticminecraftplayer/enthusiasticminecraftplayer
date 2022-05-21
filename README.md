@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @enthusiasticminecraftplayer
+- 👀 I’m interested in modding
+- 🌱 I’m currently learning nothing rn
